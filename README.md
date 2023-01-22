@@ -1,2 +1,2 @@
 # noahs-crackheadery
-this is for fun and will be chaos
+this is all for fun and will prob fail along the way but will end up somewhere good
